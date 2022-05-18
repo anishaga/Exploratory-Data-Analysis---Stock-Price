@@ -1,1 +1,1 @@
-This Is Just For Educational And No Way A Financial Advice!!
+This Is Just For Educational Purpose And No Way A Financial Advice!!
